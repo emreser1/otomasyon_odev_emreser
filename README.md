@@ -1,0 +1,1 @@
+# otomasyon_odev_emreser
